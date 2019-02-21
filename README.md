@@ -1,0 +1,2 @@
+# banhost
+link ads
